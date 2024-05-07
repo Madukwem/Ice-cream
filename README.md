@@ -1,0 +1,1 @@
+Well.. it actually my first work in coding i designed so it actually give suggestion on those probaly learning on contents and text that can be used why designing a website cos i also learnt the same from some
